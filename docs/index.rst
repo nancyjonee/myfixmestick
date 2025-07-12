@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://fixmestickaccount.com/">
+
 How to Log In to Your FixMeStick Account Step-by-Step
 ============================================
 .
